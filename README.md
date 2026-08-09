@@ -1,11 +1,13 @@
-<p align="center"><img width="350" height="501" alt="image" src="https://github.com/user-attachments/assets/33187904-d377-44a1-9b84-3cdaae71aeae" />
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![Visitors](https://visitor-badge.laobi.icu/badge?page_id=jwenjian.visitor-badge&left_text=(˶-‸҂˶)&left_color=grey&right_color=black)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=Tordcest&label=⠀⠀DESIRE+(´˘`)~♡⠀⠀&color=FFAA33&style=for-the-badge)
+<div align="center"><img width="627" height="384" alt="image" src="https://github.com/user-attachments/assets/4d4ce955-616f-4b0d-a843-39cd0b75a4ce" />
+
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 
