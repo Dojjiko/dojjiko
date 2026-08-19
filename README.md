@@ -7,8 +7,9 @@
 
 <div align="center"><img width="627" height="384" alt="image" src="https://github.com/user-attachments/assets/4d4ce955-616f-4b0d-a843-39cd0b75a4ce" />
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-
+  ⏑ ⏑  　　[@title-town](https://github.com/title-town)
+  ⠀⠀⏑ ⏑ 　　[@pt-hall-of-media](https://github.com/pt-hall-of-media)   
+   ⏑ ⏑ 　　[@ship-town](https://github.com/ship-town)⠀⠀⠀⠀⠀⠀⠀♡ֶָ֢
 
 
 
