@@ -8,7 +8,8 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
-<div align="center"><img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/a62f9dc8-4cad-4dfc-bdf5-b400417b1ee5" />
+<div align="center"><img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/ed6e8f88-c3c1-49be-aa6f-aa43ddc1788b" />
+
 
 ⠀⠀⠀
 
@@ -21,7 +22,8 @@
 
 ⠀⠀⠀
 
-<img width="236" height="114" alt="image" src="https://github.com/user-attachments/assets/17117974-e961-468f-b5cc-c62accfa9d1b" />
+<img width="236" height="114" alt="image" src="https://github.com/user-attachments/assets/fbc983ea-62e8-4059-ab6d-a0e85fa860ef" />
+
 
 
 
