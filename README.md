@@ -29,6 +29,9 @@
 <img width="240" height="20" alt="image" src="https://github.com/user-attachments/assets/acfe6e59-2b53-4f43-ad1f-9c812e6d5b46" />
 
 
+<sub>I will make this cute soon pls i cant do serious readmes
+
+
 
 ⠀⠀⠀
 
